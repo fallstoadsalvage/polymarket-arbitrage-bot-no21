@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with exclusive Polymarket Plugin | cross-chain-arbitrage + prediction-market-scanning, the #1 plugin. Includes cross-chain-arbitrage and
 
 
 
